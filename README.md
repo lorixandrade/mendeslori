@@ -1,2 +1,0 @@
-# mendeslori
-bom dia
